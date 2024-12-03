@@ -1,0 +1,3 @@
+- wassup im lertus
+- professional idiot
+- thats it lol
